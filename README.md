@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mta1313
+- 👋 Hi, I’m ali mohammad
 - 👀 I’m interested in NOTHING
 - 🌱 I’m currently learning how to live
 - 💞️ I’m looking to collaborate on NOTHING
